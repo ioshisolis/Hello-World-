@@ -1,7 +1,7 @@
 # Hello-World-
 Welcome to my world. 
 
-We all have something inside that connects with our soul. "Espiritu" 
+We all have something inside that connects with our soul. "Espíritu" 
 
 Words tend to be overwealming to me. Silence embraces most of the fears inside a trouble mind that calls it self insomnia. 
 
